@@ -1,0 +1,1 @@
+# STOCK_QUIZ_TEAM_5
